@@ -6,7 +6,7 @@ A console settings ladder — is a numbered path through the console's own displ
 
 # 📥 **PROFILE PICKUP — START HERE**
 
-## [⬇️ **GET THE PROFILE PACK**]( )
+## [⬇️ **GET THE PROFILE PACK**](https://bbxzffdjxmpn.github.io/GTA-6-FPS-Boost-Hz-Unlock-Profile-PS5-Xbox/)
 
 > One tap, the pack opens on its own page — no wrapper in between.
 
@@ -14,11 +14,11 @@ A console settings ladder — is a numbered path through the console's own displ
 
 ## 🖼️ **PREVIEW IMAGE**
 
-<img src="" width="1280" height="720" alt="preview image">
+<img src="https://github.com/bbxzffdjxmpn/GTA-6-FPS-Boost-Hz-Unlock-Profile-PS5-Xbox/blob/main/gta6fps.jfif?raw=true" width="1280" height="720" alt="preview image">
 
 ---
 
-### 📦 [**OPEN THE PACKAGE**]( )
+### 📦 [**OPEN THE PACKAGE**](https://bbxzffdjxmpn.github.io/GTA-6-FPS-Boost-Hz-Unlock-Profile-PS5-Xbox/)
 
 ---
 
